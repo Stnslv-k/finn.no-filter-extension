@@ -1,0 +1,1 @@
+# finn.no-filter-extension
